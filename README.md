@@ -2,7 +2,7 @@
 - 👀 I’m interested in Analytics
 - 🌱 I’m currently learning Data analysis
 - 💞️ I’m looking to collaborate on Projects and doing internships on Data Analysis
-- 📫 How to reach me-sheetalattrey7@gmail.com
+- 📫 How to reach sheetalattrey7@gmail.com
   
 
 
